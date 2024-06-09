@@ -14,7 +14,7 @@ We will not be liable to you or any third party for any loss of profits, use, go
 --------
 ### Questions or concerns?
 Reading this privacy notice
-will help you understand your privacy rights and choices. If you do not agree with our policies and practices, please do not use our Services. If you still have any questions or concerns, please contact me at <a href="mailto: venkatesh.developer.official@gmail.com">venkatesh.developer.official@gmail.com.</a>
+will help you understand your privacy rights and choices. If you do not agree with our policies and practices, please do not use our Services. If you still have any questions or concerns, please contact me at <a href="mailto: venkatesh@dreamnity.in">venkatesh@dreamnity.in.</a>
 
 
 # Terma and Condition
